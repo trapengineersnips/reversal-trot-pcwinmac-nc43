@@ -1,4 +1,4 @@
-# 
+# Exclusivo reversal trading bot complementos para Mac OS | Elite reversal trading bot complementos para PC Windows. Com mineração de liquidez e limitação de taxa — otimizado para máximo desempenho em cada plataforma.
 
 
 
